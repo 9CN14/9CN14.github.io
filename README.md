@@ -2,6 +2,6 @@
 -----------------
 my favorite things
 - havng fun
-- bieng loved
-- bieng appreciated
+- being loved
+- being appreciated
 
