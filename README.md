@@ -1,9 +1,9 @@
  # **9CN14.github.io**
 --------------------
-# LGBT RIGHTS IN SOUTHEAST ASIA
-As an LGBT student i want to show to all of you that even in this modern age many countries in asia still belive in old tradtion that discriminate's against the but im also here to show you that many countries that has somehow accepted the LGBT community.
 
-![LGBT RIGHTS IN SOUTHEAST ASIA](https://theaseanpost.com/sites/default/files/19783.jpg)
+# As an LGBT student i want to show to all of you that even in this modern age many countries in asia still belive in old tradtion that discriminate's against the but im also here to show you that many countries that has somehow accepted the LGBT community.
+
+
 
 # LGBT RIGHTS IN SOUTHEAST ASIA
 
