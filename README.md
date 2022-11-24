@@ -33,6 +33,10 @@ In Myanmar sam-sex activities are illegal and can land you in prison for up to 2
 
 ![alt text](https://cdn.britannica.com/34/4034-004-B478631E/Flag-Myanmar.jpg)
 # 8. Philippines 
-
+In the Philippines my home country there are no laws prohibiting same-sex activities but recontion of same-sex couple or relationships are still pendeng. Addoption can only be done by an lgbt individual but not couples. While some cities have anti discrimantion laws the national bill is still pending. Laws about gender expression is still pending. 
 
 ![alt text](https://cdn.britannica.com/73/3473-004-6E573BFA/Flag-Philippines.jpg)
+# 9. Singapore
+In Singapore 
+
+![alt text](https://cdn.britannica.com/36/4036-050-37052A78/Flag-Singapore.jpg)
