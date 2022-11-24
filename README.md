@@ -28,3 +28,11 @@ In Laos no law prohibits same-sex activities but thet don't recoginze same-sex c
 In Malaysia same-sex activities is illegal and can land yoin prison for 2-20 years or whippings. lgbt individuals can adopt but not couples. For me I would want to go to Malaysia bcs of this but i hope in the future thses changes and they can be more open.
 
 ![alt text](https://cdn.britannica.com/31/4031-004-82B0F3A9/Flag-Malaysia.jpg)
+# 7. Myanmar 
+In Myanmar sam-sex activities are illegal and can land you in prison for up to 20 years and they dont recognize same-sex couples and relationships and does not allow same-sex marriage. No laws has been made protecting the lgbt community from discrimination
+
+![alt text](https://cdn.britannica.com/34/4034-004-B478631E/Flag-Myanmar.jpg)
+# 8. Philippines 
+
+
+![alt text](https://cdn.britannica.com/73/3473-004-6E573BFA/Flag-Philippines.jpg)
