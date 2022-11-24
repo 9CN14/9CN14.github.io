@@ -13,3 +13,6 @@ In Brunei same-sex activities is illegal and is punishable by the death penalty 
 # 2. Cambodia
 In Cambodia no law prohibits any same-sex activities and in some cities they recognize same-sex couples but same-sex marraige is not legal. No laws protect the lgbt community against discrimination so overall for me this is not a bad palce for lgbt members.
  ![alt text](https://upload.wikimedia.org/wikipedia/commons/8/83/Flag_of_Cambodia.svg)
+# 3. East Timor
+In East Timor same-sex activities are legal but they don't recognize same-sex relationships and does not allow same-sex merraige but they do have laws protecting the lgbt commnity from discrimination
+![alt text](https://upload.wikimedia.org/wikipedia/commons/2/26/Flag_of_East_Timor.svg)
