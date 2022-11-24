@@ -24,3 +24,7 @@ In Indonesia no laws prohibit same-sex activities but same as Eat Timor the dont
 In Laos no law prohibits same-sex activities but thet don't recoginze same-sex couples and relationships and does not allow same-sex marriage. They dont allow adoption by same-sex couples and no laws protects the lgbt from discrimation.  
 
 ![alt text](https://cdn.britannica.com/29/4029-004-D7D8C514/Flag-Laos.jpg)
+# 6. Malaysia 
+In Malaysia same-sex activities is illegal and can land yoin prison for 2-20 years or whippings. lgbt individuals can adopt but not couples. For me I would want to go to Malaysia bcs of this but i hope in the future thses changes and they can be more open.
+
+![alt text](https://cdn.britannica.com/31/4031-004-82B0F3A9/Flag-Malaysia.jpg)
