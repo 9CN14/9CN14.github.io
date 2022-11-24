@@ -1,7 +1,7 @@
 # 9CN14.github.io
 --------------------
 
-# As an LGBT student i want to show to all of you that even in this modern age many countries in asia still believe in old tradition that discriminates against the but i'm also here to show you that many countries that has somehow accepted the LGBT community.
+# As an LGBT student i want to show to all of you that even in this modern age many countries in SouthEast Asia still believe in old tradition that discriminates against the LGBT community  but i'm also here to show you that many countries that has somehow accepted the LGBT community.
 
 ![pic](https://d3i6fh83elv35t.cloudfront.net/static/2022/06/2020-10-31T100354Z_1098708187_RC2MTJ91LRDW_RTRMADP_3_GAY-PRIDE-TAIWAN-1200x800.jpg)
 
