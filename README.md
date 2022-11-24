@@ -41,6 +41,12 @@ In Singapore same-sex activities for male is illegal and can land you in prison 
 
 ![alt text](https://cdn.britannica.com/36/4036-050-37052A78/Flag-Singapore.jpg)
 # 10. Thailand
-In Thailand there are no laws prohibiting same-sex activities and recogntion of same-sex couples and relationships are still pending and they don't allow same-marriage. In thailand they have laws that bans anti gay discrimination and they have anti-discrimination protection for gender expression  
+In Thailand there are no laws prohibiting same-sex activities and recogntion of same-sex couples and relationships are still pending and they don't allow same-marriage. In thailand they have laws that bans anti-gay discrimination and they have anti-discrimination protection for gender expression  
 
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/a/a9/Flag_of_Thailand.svg)
+# 11. Vietnam
+In Vietnam no laws prohibit same-sex activities, but they do not recognize same sex couples and relationships and does not allow same-sex marriage. Lgbt individuals can adpot but not same-sex couples and bans some anti-gay discrimination. Gender changes recognized and officially practised since 2017
+
+![alt text](https://upload.wikimedia.org/wikipedia/commons/2/21/Flag_of_Vietnam.svg)
+
+# source: [wikipedia](https://en.wikipedia.org/wiki/LGBT_rights_in_Asia)
