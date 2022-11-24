@@ -1,4 +1,4 @@
- # 9CN14.github.io
+# 9CN14.github.io
 --------------------
 
 # As an LGBT student i want to show to all of you that even in this modern age many countries in asia still believe in old tradition that discriminates against the but i'm also here to show you that many countries that has somehow accepted the LGBT community.
