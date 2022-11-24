@@ -37,6 +37,10 @@ In the Philippines my home country there are no laws prohibiting same-sex activi
 
 ![alt text](https://cdn.britannica.com/73/3473-004-6E573BFA/Flag-Philippines.jpg)
 # 9. Singapore
-In Singapore 
+In Singapore same-sex activities for male is illegal and can land you in prison for 2 years but for women it is legal but they dont recognize sam-sex couples and relationships and does not allow same-sex marriage. There are laws protecting the lgbt community from violent hate crimes and Transgender people allowed to change legal gender, but only after sex reassignment surgery. 
 
 ![alt text](https://cdn.britannica.com/36/4036-050-37052A78/Flag-Singapore.jpg)
+# 10. Thailand
+In Thailand there are no laws prohibiting same-sex activities and recogntion of same-sex couples and relationships are still pending and they don't allow same-marriage. In thailand they have laws that bans anti gay discrimination and they have anti-discrimination protection for gender expression  
+
+![alt text](https://upload.wikimedia.org/wikipedia/commons/a/a9/Flag_of_Thailand.svg)
