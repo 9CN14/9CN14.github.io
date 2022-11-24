@@ -11,3 +11,5 @@
 In Brunei same-sex activities is illegal and is punishable by the death penalty or imprisonment for 10 years as you can see Brunei is not one of the places you want to go if you are part of the lgbt community. No laws protects the lgbt community in Brunei
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/9/9c/Flag_of_Brunei.svg)
 # 2. Cambodia
+In Cambodia no law prohibits any same-sex activities and in some cities they recognize same-sex couples but same-sex marraige is not legal. No laws protect the lgbt community against discrimination so overall for me this is not a bad palce for lgbt members.
+ ![alt text](https://upload.wikimedia.org/wikipedia/commons/8/83/Flag_of_Cambodia.svg)
